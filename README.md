@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @strashnovavictoria
+- 👋 Hi, I’m Strashnova Victoria
